@@ -20,4 +20,4 @@ I like to go outside my studies and learn about bussiness, parallel programming 
 
 ### Connect
 
-[Your LinkedIn Profile]([YOUR_LINKEDIN_URL](https://www.linkedin.com/in/geovanny-tabango/))
+[Your LinkedIn Profile](https://www.linkedin.com/in/geovanny-tabango/)
